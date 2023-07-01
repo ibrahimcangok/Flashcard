@@ -1,1 +1,1 @@
-![81hXWHLlnPL _AC_UF1000,1000_QL80_](https://github.com/ibrahimcangok/Flashcard/assets/106431802/a2b72a5b-7e39-4db9-9b0c-3f189a37f739)
+![maxresdefault](https://github.com/ibrahimcangok/Flashcard/assets/106431802/0968e837-55ff-40ef-a1f5-05269bef5c7b)
