@@ -1,1 +1,1 @@
-![9781593278960](https://github.com/ibrahimcangok/Flashcard/assets/106431802/58a7b8c7-e4df-4f4b-92b5-e6a3bf1514a0)
+![81hXWHLlnPL _AC_UF1000,1000_QL80_](https://github.com/ibrahimcangok/Flashcard/assets/106431802/a2b72a5b-7e39-4db9-9b0c-3f189a37f739)
